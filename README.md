@@ -16,7 +16,7 @@
   
 - 👨‍💻 All of my projects are available at https://prasad-pawar2729-github-io.vercel.app/
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/17uJe1igvR59n7lxBBmmaXqM7sIoo_W9G/view?usp=sharing](https://drive.google.com/file/d/1YQ8VNAVFlvl9IpAlZND_gH591rj514Mu/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/1DcO4ojESL0hB3vF9PgbtNPHyv2jiqCwn](https://drive.google.com/drive/folders/1DcO4ojESL0hB3vF9PgbtNPHyv2jiqCwn)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
